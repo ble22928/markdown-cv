@@ -28,24 +28,22 @@ New challenges and new roles make me very enthusiastic, and I always keep an ope
 as much as possible from every experience and from each of my colleagues.
 Together with my positive attitude, this is the secret ingredient of my success!
 
-## Currently
+## Work experience
 
-Assistant Store Manager @ [Calzedonia](https://world.calzedonia.com/home.jsp)'s NYC 5th Ave Falgship Store.
+`Nov 2017 - present` Assistant Store Manager @ [Calzedonia](https://world.calzedonia.com/home.jsp)'s NYC 5th Ave Falgship Store.
 
-## Previously
+`Jul 2017 - Nov 2017` Keyholder @ [Calzedonia](https://world.calzedonia.com/home.jsp)'s NYC 5th Ave Flagship Store.
 
-Keyholder @ [Calzedonia](https://world.calzedonia.com/home.jsp)'s NYC 5th Ave Flagship Store - `Jul 2017 - Nov 2017`.
+`Nov 2016 - Jul 2017` Brand Specialist @ [Lacoste](https://www.lacoste.com/us/homepage)'s NYC Macy's Herald Square Boutique.
 
-Brand Specialist @ [Lacoste](https://www.lacoste.com/us/homepage)'s NYC Macy's Herald Square Boutique - `Nov 2016 - Jul 2017`.
+`Jul 2016 - Nov 2016` Sales Supervisor @ [Lacoste](https://www.lacoste.com/us/homepage)'s One World Trade Center Boutique.
 
-Sales Supervisor @ [Lacoste](https://www.lacoste.com/us/homepage)'s One World Trade Center Boutique - `Jul 2016 - Nov 2016`.
+`Oct 2014 - Jun 2016` Empowered Sales Associate @ [Macy's](https://www.macys.com); Ross Park Mall, Ross Township, PA.
 
-Empowered Sales Associate @ [Macy's](https://www.macys.com); Ross Park Mall, Ross Township, PA - `Oct 2014 - Jun 2016`.
+`Apr 2009 - Jun 2016` Stand Leader @ [JD's Olde Fashioned Popcorn](https://www.facebook.com/JDsPopcorn/); Pittsburgh, PA.
 
-Stand Leader @ [JD's Olde Fashioned Popcorn](https://www.facebook.com/JDsPopcorn/); Pittsburgh, PA - `Apr 2009 - Jun 2016`.
+`Oct 2012 - Jul 2015` Sales Support @ [Victoria's Secret](http://victoriassecret.com); Ross Park Mall, Ross Township, PA.
 
-Sales Support @ [Victoria's Secret](http://victoriassecret.com); Ross Park Mall, Ross Township, PA - `Oct 2012 - Jul 2015`.
+`Mar 2014 - Oct 2014` Store Manager @ [Rita's Italian Ice](https://www.ritasice.com); Kennedy Township, PA.
 
-Store Manager @ [Rita's Italian Ice](https://www.ritasice.com); Kennedy Township, PA - `Mar 2014 - Oct 2014`.
-
-Store Manager @ [T-Bone's Marketplace](http://www.tbonesmarketplace.com); Wexford, PA - `Oct 2005 - Jul 2012`.
+`Oct 2005 - Jul 2012` Store Manager @ [T-Bone's Marketplace](http://www.tbonesmarketplace.com); Wexford, PA.
