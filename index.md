@@ -57,7 +57,7 @@ So, I accepted with enthusiasm!
 This position was a great opportunity to learn more the wholesale side of the Lacoste business
 and, at the same time, an exciting new challenge as a Lacoste leader!
 
-`Jul 2016 - Nov 2016` *Sales Supervisor* @ [*Lacoste*](https://www.lacoste.com/us/homepage)'s One World Trade Center Boutique.
+`Jul 2016 - Nov 2016` *Sales Supervisor* @ [*Lacoste*](https://www.lacoste.com/us/homepage)'s NYC One World Trade Center Boutique.
 
 My first exciting opportunity after moving from my hometown, Pittsburgh PA, to NYC!
 
