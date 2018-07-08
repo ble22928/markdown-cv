@@ -32,11 +32,11 @@ Together with my positive attitude, this is the secret ingredient of my success!
 
 ## Work experience
 
-`Nov 2017 - present` Assistant Store Manager @ [Calzedonia](https://world.calzedonia.com/home.jsp)'s NYC 5th Ave Falgship Store.
+`Nov 2017 - present` *Assistant Store Manager* @ [Calzedonia](https://world.calzedonia.com/home.jsp)'s NYC 5th Ave Falgship Store.
 
-`Jul 2017 - Nov 2017` Keyholder @ [Calzedonia](https://world.calzedonia.com/home.jsp)'s NYC 5th Ave Flagship Store.
+`Jul 2017 - Nov 2017` *Keyholder* @ [Calzedonia](https://world.calzedonia.com/home.jsp)'s NYC 5th Ave Flagship Store.
 
-`Nov 2016 - Jul 2017` Brand Specialist @ [Lacoste](https://www.lacoste.com/us/homepage)'s NYC Macy's Herald Square Boutique.
+`Nov 2016 - Jul 2017` *Brand Specialist* @ [Lacoste](https://www.lacoste.com/us/homepage)'s NYC Macy's Herald Square Boutique.
 
 In November 2016, I was offered the opportunity to fill a position at the Lacoste boutique
 inside of the Herald Square Macy's.
@@ -48,7 +48,7 @@ So, I accepted with enthusiasm!
 This position was a great opportunity to learn more the wholesale side of the Lacoste business
 and, at the same time, an exciting new challenge as a Lacoste leader!
 
-`Jul 2016 - Nov 2016` Sales Supervisor @ [Lacoste](https://www.lacoste.com/us/homepage)'s One World Trade Center Boutique.
+`Jul 2016 - Nov 2016` *Sales Supervisor* @ [Lacoste](https://www.lacoste.com/us/homepage)'s One World Trade Center Boutique.
 
 My first exciting opportunity after moving from my hometown, Pittsburgh PA, to NYC!
 
@@ -57,7 +57,7 @@ Westfield Mall (One World Trade Center).
 In this experience, I became a Lacoste expert and I further developed my retail business
 skills as well as my ability to effectively supervise and bring together a strong team.
 
-`Oct 2014 - Jun 2016` Empowered Sales Associate @ [Macy's](https://www.macys.com); Ross Park Mall, Ross Township, PA.
+`Oct 2014 - Jun 2016` *Empowered Sales Associate* @ [Macy's](https://www.macys.com); Ross Park Mall, Ross Township, PA.
 
 I am proud to have worked at the largest Macy’s store in Western PA!
 I worked in the Men’s Furnishing department, but I also supported other departments such as
@@ -70,7 +70,7 @@ and exceeding the expectations of my customers
 (and making sure that even those who came in with a complaint or a special request were fully
 satisfied about their shopping experience before leaving).
 
-`Apr 2009 - Jun 2016` Stand Leader @ [JD's Olde Fashioned Popcorn](https://www.facebook.com/JDsPopcorn/); Pittsburgh, PA.
+`Apr 2009 - Jun 2016` *Stand Leader* @ [JD's Olde Fashioned Popcorn](https://www.facebook.com/JDsPopcorn/); Pittsburgh, PA.
 
 JD’s Olde-Fashioned Popcorn is a family owned and operated business, specializing in gourmet
 popcorn and candied nuts.
@@ -81,7 +81,7 @@ There, I was responsible for the on-site production which is based on real-time 
 I supervised the other employees in the stand and I reported directly to the owners regarding
 the stand’s profitability and performance.
 
-`Oct 2012 - Jul 2015` Sales Support @ [Victoria's Secret](http://victoriassecret.com); Ross Park Mall, Ross Township, PA.
+`Oct 2012 - Jul 2015` *Sales Support* @ [Victoria's Secret](http://victoriassecret.com); Ross Park Mall, Ross Township, PA.
 
 Just like every other woman, I have always loved Victoria’s Secret! :D
 
@@ -90,7 +90,7 @@ I supported the store with all of its main merchandising activities and, in part
 I focused on duties such as unpacking inbound shipped items and organizing them on the
 sales floor.
 
-`Mar 2014 - Oct 2014` Store Manager @ [Rita's Italian Ice](https://www.ritasice.com); Kennedy Township, PA.
+`Mar 2014 - Oct 2014` *Store Manager* @ [Rita's Italian Ice](https://www.ritasice.com); Kennedy Township, PA.
 
 My experience at Rita’s was an unforgettable one!
 I had the responsibility of managing the Kennedy Township store while, at the same time,
@@ -100,7 +100,7 @@ Rita’s store managers are in charge of hiring and training.
 My duties also included supervising and assisting the store employees, as well as being
 responsible for all the paperwork and the bookkeeping associated with the store’s business.
 
-`Oct 2005 - Jul 2012` Store Manager @ [T-Bone's Marketplace](http://www.tbonesmarketplace.com); Wexford, PA.
+`Oct 2005 - Jul 2012` *Store Manager* @ [T-Bone's Marketplace](http://www.tbonesmarketplace.com); Wexford, PA.
 
 T-Bone's (http://tbonesmarketplace.com) was my first work experience, and a very successful one!
 At the age of 19, I was promoted to Store Manager and I was put in charge of all of the store’s
