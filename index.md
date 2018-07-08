@@ -32,7 +32,7 @@ Together with my positive attitude, this is the secret ingredient of my success!
 
 ## Work experience
 
-`Nov 2017 - present` *Assistant Store Manager* @ [Calzedonia](https://world.calzedonia.com/home.jsp)'s NYC 5th Ave Falgship Store.
+`Nov 2017 - present` *Assistant Store Manager* @ [Calzedonia](https://world.calzedonia.com/home.jsp)'s NYC 5th Ave Flagship Store.
 
 `Jul 2017 - Nov 2017` *Keyholder* @ [Calzedonia](https://world.calzedonia.com/home.jsp)'s NYC 5th Ave Flagship Store.
 
