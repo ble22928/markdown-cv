@@ -10,6 +10,15 @@ title: Beckie Leigh (Elsesser) Ciollaro
   | <a href="https://www.linkedin.com/in/beckie-ciollaro-602240109/">My LinkedIn profile</a>
 </div>
 
+<p align="center">
+   <img
+      src="img/beckie.jpeg"
+      alt="Beckie"
+      height="200"
+      witdh="200"
+   >
+</p>
+
 ## About me
 
 My diversified career has allowed me to develop a wide array of managerial and sales skills,
