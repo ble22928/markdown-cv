@@ -5,6 +5,11 @@ title: Beckie Leigh (Elsesser) Ciollaro
 
 # Beckie Leigh (Elsesser) Ciollaro
 
+<div id="webaddress">
+<a href="beckie.elsesser@gmail.com">beckie.elsesser@gmail.com</a>
+  | <a href="https://www.linkedin.com/in/beckie-ciollaro-602240109/">My LinkedIn profile</a>
+</div>
+
 My diversified career has allowed me to develop a wide array of managerial and sales skills,
 and I always look forward to keep broadening my expertise and satisfy my customers well beyond
 their expectations!
