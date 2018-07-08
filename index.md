@@ -14,6 +14,8 @@ title: Beckie Leigh (Elsesser) Ciollaro
    <img
       src="img/beckie.jpeg"
       alt="Beckie"
+      height="200"
+      witdh="200"
    >
 </p>
 
