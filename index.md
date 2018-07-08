@@ -2,90 +2,45 @@
 layout: cv
 title: Isaac Newtons's CV
 ---
-# Isaac Newton
-Physicist, Mathematician, Cambridge professor.
 
-<div id="webaddress">
-<a href="isaac@applesdofall.org">isaac@applesdofall.org</a>
-| <a href="http://en.wikipedia.org/wiki/Isaac_Newton">My wikipedia page</a>
-</div>
+# Beckie Leigh (Elsesser) Ciollaro
 
+My diversified career has allowed me to develop a wide array of managerial and sales skills,
+and I always look forward to keep broadening my expertise and satisfy my customers well beyond
+their expectations!
+
+I enjoy very much working with people and, at the same time, I have a very entrepreneurial mindset.
+I see myself as a key asset to make my company stronger and more profitable.
+
+During my career, I have had both customer-facing as well as manager roles.
+What I learned in the former always made me better in the latter, and vice versa.
+
+Three adjectives that best summarize myself at work? *Hard-working*, *goal-oriented*,
+and *over-achieving*!
+Let me add a fourth one: *team-leader*.
+
+New challenges and new roles make me very enthusiastic, and I always keep an open mind to learn
+as much as possible from every experience and from each of my colleagues.
+Together with my positive attitude, this is the secret ingredient of my success!
 
 ## Currently
 
-Standing on the shoulders of giants
+Assistant Store Manager @ [Calzedonia](https://world.calzedonia.com/home.jsp)'s NYC 5th Ave Falgship Store.
 
-### Specialized in
+## Previously
 
-Laws of motion, gravitation, minting coins, disliking [Robert Hooke](http://en.wikipedia.org/wiki/Robert_Hooke)
+- Keyholder @ [Calzedonia](https://world.calzedonia.com/home.jsp)'s NYC 5th Ave Flagship Store - **Jul 2017 - Nov 2017**.
 
+- Brand Specialist @ [Lacoste](https://www.lacoste.com/us/homepage)'s NYC Macy's Herald Square Boutique - **Nov 2016 - Jul 2017**.
 
-### Research interests
+- Sales Supervisor @ [Lacoste](https://www.lacoste.com/us/homepage)'s One World Trade Center Boutique - **Jul 2016 - Nov 2016**.
 
-Cooling, power series, optics, alchemy, planetary motions, apples.
+- Empowered Sales Associate @ [Macy's](https://www.macys.com); Ross Park Mall, Ross Township, PA - **Oct 2014 - Jun 2016**.
 
+- Stand Leader @ [JD's Olde Fashioned Popcorn](https://www.facebook.com/JDsPopcorn/); Pittsburgh, PA - **Apr 2009 - Jun 2016**.
 
-## Education
+- Sales Support @ [Victoria's Secret](http://victoriassecret.com); Ross Park Mall, Ross Township, PA - **Oct 2012 - Jul 2015**.
 
-`1654-1660`
-__The King's School, Grantham.__
+- Store Manager @ [Rita's Italian Ice](https://www.ritasice.com); Kennedy Township, PA - **Mar 2014 - Oct 2014**.
 
-`June 1661 - now`
-__Trinity College, Cambridge__
-
-- Sizar
-
-`1667 - death`
-__Trinity College, Cambridge__
-
-- Fellow
-
-
-
-## Awards
-
-`2012`
-President, *Royal Society*, London, UK
-
-Associate, *French Academy of Science*, Paris, France
-
-
-
-## Publications
-
-<!-- A list is also available [online](http://scholar.google.co.uk/citations?user=LTOTl0YAAAAJ) -->
-
-### Journals
-
-`1669`
-Newton Sir I, De analysi per æquationes numero terminorum infinitas. 
-
-`1669`
-Lectiones opticæ.
-
-etc. etc. etc.
-
-### Patents
-
-`2012`
-Infinitesimal calculus for solutions to physics problems, [SMBC](http://www.techdirt.com/articles/20121011/09312820678/if-patents-had-been-around-time-newton.shtml) patent 001
-
-
-## Occupation
-
-`1600`
-__Royal Mint__, London
-
-- Warden
-- Minted coins
-
-`1600`
-__Lucasian professor of Mathematics__, Cambridge University
-
-
-
-<!-- ### Footer
-
-Last updated: May 2013 -->
-
-
+- Store Manager @ [T-Bone's Marketplace](http://www.tbonesmarketplace.com); Wexford, PA - **Oct 2005 - Jul 2012**.
