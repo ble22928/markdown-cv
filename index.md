@@ -111,7 +111,7 @@ responsible for all the paperwork and the bookkeeping associated with the storeâ
 
 `Oct 2005 - Jul 2012` *Store Manager* @ [*T-Bone's Marketplace*](http://www.tbonesmarketplace.com); Wexford, PA.
 
-T-Bone's (http://tbonesmarketplace.com) was my first work experience, and a very successful one!
+T-Bone's was my first work experience, and a very successful one!
 At the age of 19, I was promoted to Store Manager and I was put in charge of all of the storeâ€™s
 main activities.
 I had the responsibility of making sure that all of the store departments were operating effectively
