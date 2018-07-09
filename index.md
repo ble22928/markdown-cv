@@ -6,7 +6,7 @@ title: Beckie Leigh (Elsesser) Ciollaro
 # Beckie Leigh (Elsesser) Ciollaro
 
 <div id="webaddress">
-<a href="beckie.elsesser@gmail.com">beckie.elsesser@gmail.com</a>
+<a href="mailto:beckie.elsesser@gmail.com">beckie.elsesser@gmail.com</a>
   | <a href="https://www.linkedin.com/in/beckie-ciollaro-602240109/">My LinkedIn profile</a>
 </div>
 
