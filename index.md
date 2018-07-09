@@ -68,7 +68,7 @@ I trained with an exceptional international team and *on July 27th I had the*
 
 `Nov 2016 - Jul 2017` *Brand Specialist* @ [*Lacoste*](https://www.lacoste.com/us/homepage)'s NYC Macy's Herald Square Boutique.
 
-In November 2016, I was *offered a promotion and given the opportunity to fill*
+In November 2016, *I was offered a promotion and given the opportunity to fill*
 *a position at the Lacoste boutique inside of the Herald Square Macy's.*
 This position required a leader with a good understanding of the department
 store business.
@@ -85,7 +85,7 @@ and, at the same time, an exciting new challenge as a Lacoste leader!
 My first exciting opportunity after moving from my hometown, Pittsburgh PA,
 to NYC!
 
-I led a fantastic group of people and *opened the brand new boutique located*
+*I led a fantastic group of people and opened the brand new boutique located*
 *inside of the Westfield Mall (One World Trade Center).*
 In this experience, I became a Lacoste expert and I further developed my
 retail business skills as well as my ability to effectively supervise and
@@ -93,9 +93,9 @@ bring together a strong team.
 
 `Oct 2014 - Jun 2016` *Empowered Sales Associate* @ [*Macy's*](https://www.macys.com); Ross Park Mall, Ross Township, PA.
 
-I am proud to have worked at *the largest Macy’s store in Western PA!*
-I worked in the Men’s Furnishing department, but I also supported other
-departments such as the Suits department, the Juniors’, and the Young Men’s.
+I am proud to have worked at the largest Macy’s store in Western PA!
+*I worked in the Men’s Furnishing department, but I also supported other*
+*departments such as the Suits department, the Juniors’, and the Young Men’s.*
 
 Everyday, I helped my customers finding the perfect outfit by selecting the
 best items and by choosing among brands such as Calvin Klein, Ralph Lauren,
@@ -123,7 +123,7 @@ owners regarding the stand’s profitability and performance.
 Just like every other woman, I have always loved Victoria’s Secret! :D
 
 My professional experience with the company was a very exciting one.
-I *supported the store with all of its main merchandising activities* and,
+*I supported the store with all of its main merchandising activities* and,
 in particular, I focused on duties such as unpacking inbound shipped items and
 organizing them on the sales floor.
 
