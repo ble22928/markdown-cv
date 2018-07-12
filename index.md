@@ -54,7 +54,7 @@ In this new exciting role, my activities concentrated on the core
 operations of the store such as ensuring that the staff gave extraordinary
 customer service, recruiting and training new team members, managing budgets,
 maintaining the store financial records, overseeing pricing and stock control,
-preparing promotional materials and floor display, and acting as a liason with
+preparing promotional materials and floor display, and acting as a liaison with
 the company's corporate office.
 
 `Jul 2017 - Nov 2017` *Keyholder* @ [*Calzedonia*](https://world.calzedonia.com/home.jsp)'s NYC 5th Ave Flagship Store.
